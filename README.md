@@ -9,6 +9,5 @@ Here are some ideas to get you started:
 - 👯 I like to hang out with friends
 - 🤔 I'm interesting in playing badminton,watching baseball game
 - 💬 Birthday:2003/02/05
-- 📫 email:I don't want to say this.
 - 😄 I usually smile to make everyone happy! 
 - ⚡ Recent goal:Passing all exam with flying colors!
